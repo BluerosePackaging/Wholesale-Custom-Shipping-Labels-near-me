@@ -2,7 +2,6 @@
 
 Buy wholesale custom shipping labels locally with fast turnaround and competitive pricing. Get personalized, durable labels in bulk to secure your packages and promote your brand. Request your free quote today!
 
-# Wholesale Shipping Labels Near Me | Bluerose Packaging
 
 In a logistics-driven market like Brea, investing in high-quality wholesale custom shipping labels is essential for manufacturers, distributors, and retailers alike.
 
